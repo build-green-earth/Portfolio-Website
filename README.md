@@ -4,6 +4,8 @@ Telegram: https://t.me/EdgeOfCliff
 Email: chrischan1015@proton.me
 Skype: live:.cid.f1138a2ad6685dd4
 
+<b>PLEASE CONTACT ME VIA TELEGRAM OR EMAIL OR SKYPE. I CAN SHARE ALL THE DETAILS VIA TELEGRAM</b>
+
 I CAN PAY $50~$100 monthly and you just need to work 5 hours at the most per month.
 
 <b>DO NOT MENTION ABOUT THIS CONTENT INSIDE FIVER. IF THEN BOTH OF OUR ACCOUNTS WILL BE CLOSED.
