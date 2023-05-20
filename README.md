@@ -1,7 +1,6 @@
 [# Liveshopping-Superadmin](
 
 Telegram: https://t.me/EdgeOfCliff
-Email: chrischan1015@proton.me
 Skype: live:.cid.f1138a2ad6685dd4
 
 <b>PLEASE CONTACT ME VIA TELEGRAM OR EMAIL OR SKYPE. I CAN SHARE ALL THE DETAILS VIA TELEGRAM</b>
